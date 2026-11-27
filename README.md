@@ -1,1 +1,1 @@
-Maybe I'm tired, but that's not a fact. We're waiting for AGI.
+At this rate, we won’t create AGI—we’ll just end up with a fancy toy for heads of state.
